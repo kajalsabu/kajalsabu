@@ -1,5 +1,5 @@
 ### Hi there 👋
-## I am an Electronics and Communication student
+## I am an Electronics and Communication Engineering student
 
 
 
